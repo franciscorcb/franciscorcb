@@ -1,4 +1,4 @@
-# Opa, fala aí! 👋
+# Opa, fala aê!
 
 Me chamo **Francisco** e sou de **São Luís - MA**. 🌴  
 Estudante da **Universidade Federal do Maranhão (UFMA)**. 💻📚  
